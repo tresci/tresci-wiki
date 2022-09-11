@@ -1,1 +1,1 @@
-![image](https://spolecznosc.payload.pl/site/uploads/2022/Aug/30/tresci-logo-ciemne.png)
+Nothing interesting here. Go to https://tresci.net/ instead.
